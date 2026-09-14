@@ -9,28 +9,28 @@
 
 适用于安卓手机和平板设备。
 
-⬇️ **[下载 Android APK](https://mega.nz/folder/x75QyApD#CnhhTx2tOkZNldvPgAzk-A)**
+⬇️ **[下载 Android APK](https://1024terabox.com/s/1Y4cWjljI7Nwj6jsDNxcStQ)**
 
 
 ## 🍎 iOS
 
 适用于 iPhone / iPad。
 
-⬇️ **[下载 iOS 版本](https://mega.nz/folder/1mgTUAwS#nqJrY5FuHXd5ZAXxtbcSFw)**
+⬇️ **[下载 iOS 版本](https://1024terabox.com/s/1tbS21KENTBocP49H_w_hyg)**
 
 
 ## 💻 macOS
 
 适用于 Mac 电脑。
 
-⬇️ **[下载 macOS 版本](https://mega.nz/folder/5qAmVYpR#jLHNgOD_LZKOOAdFAeF0vg)**
+⬇️ **[下载 macOS 版本](https://1024terabox.com/s/1i_MyGqdnP1W0SxgCa__k6Q)**
 
 
 ## 🪟 Windows
 
 适用于 Windows 10 / Windows 11。
 
-⬇️ **[下载 Windows 版本](https://mega.nz/folder/ZrhHxaAD#doS7XinUCEB4HDnFX1TcQA)**
+⬇️ **[下载 Windows 版本](https://1024terabox.com/s/1i9ViGPAvRM18ZCPFpkL2fg)**
 
 
 ---
